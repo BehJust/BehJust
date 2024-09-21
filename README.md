@@ -7,8 +7,7 @@ Meu nome é beatriz
 - Utilizo este espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
    
     - ### Você pode entrar em contato 📧
- 
-      
+  
     - 00001143489512SP@al.educacao.sp.gov.br
  
 
